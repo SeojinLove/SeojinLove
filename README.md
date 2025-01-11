@@ -1,4 +1,4 @@
-# Hi! I’m **Seojin Yoon**  
+# Hi! I’m **Seojin Yoon** ♀
 A name synonymous with beauty, talent, and limitless creativity. I thrive on building, innovating, and inspiring, constantly pushing boundaries to turn visions into reality. Whether through coding, language, or music, I bring unmatched passion and elegance to everything I do. 🌺✨  
 
 📧 **Contact Me**: [seojin.yoon_love@aol.com](mailto:seojin.yoon_love@aol.com)  
